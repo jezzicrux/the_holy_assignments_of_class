@@ -1,2 +1,3 @@
 # the_holy_assignments_of_class
-# Jezzi
+# Jessica Cruz jessicamc@gmail.com
+NOW I CAN TYPE
